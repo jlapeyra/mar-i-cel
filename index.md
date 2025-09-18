@@ -1,22 +1,7 @@
-<!-- ---
-title: ""
---- -->
-
-
 Estam buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel***, de Dagoll Dafom. 
 
 Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** a [l'Espiga](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA). Us animem a venir!
-<!-- 
-# Una mica de context
-- Què és Mar i Cel?
-- D'on ve aquest projecte?
-- Podeu veure l'obra sencera a YouTube
 
-És un musical de Dagoll Dagom ambientat a la pirateria morisca del segle XVII al Mediterrani, comcretant un vaixell sarraï que segresta un grup de cristians. Estrenat el 1988, amb reposicions el 2004, 2014 i 2024, és probablement l'obra de teatre catalana més mítica i exitosa dels últims cinquanta anys. En resum, és un clàssic.
-
-Podeu veure l'obra sencera a YouTube: [Obra sencera a YouTube](https://youtube.com/...)
-
--->
 
 
 ## Què he de fer per apuntar-me?
@@ -36,19 +21,16 @@ Horaris d'assaig:
 No tothom serà convocat a tots els assajos. Es planificaran en funció de personatges.
 
 
-## Qüestions sobre l'audició
+## FAQs sobre l'audició
 
 ### Quin nivell demaneu?
 Ens adaptarem al que tinguem. El requisit mínim és saber cantar.
-
-<!-- ### Què valorareu?
-Valorarem tant cant com interpretació. Mar i Cel gairebé no té diàleg parlat, sinó que és com una opereta: quasi tot és cantat. Per tant, la prova d'intrerpretació és la mateixa que la prova de cant. -->
 
 ### Comsells per l'audició
 - Escolteu-vos la referència 
 - Assajeu la cançó
 - Proveu de posar-hi intenció
-Que no us faci respecte el audicionar. Ja sabem que no sou professionals (noasltres tampoc ho som). La finalitat de l'audició és donar-nos un creteri objectiu per assignar personatges i cor (ensamble).
+Que no us faci respecte el audicionar. Ja sabem que no sou professionals (noasltres tampoc ho som). La finalitat principal de l'audició és donar-nos un creteri objectiu per assignar personatges i cor.
 
 ### Què passa si no puc assistir a l'audició?
 És important que vingueu. De totes maneres, si us fa molta il·lusió incorporar-vos al projecte però el diumenge 28 no podeu venir, contacteu amb nosaltres i mirarem de trobar una solució.

@@ -1,3 +1,6 @@
+---
+title: ""
+---
 # Mar i Cel | L'Espiga
 
 Estam buscant gent per un nou projecte teatral a l’Espiga: el musical Mar i Cel. Hem convocat audicions (una mena de càsting) pel *diumenge 28 de setembre al matí*.

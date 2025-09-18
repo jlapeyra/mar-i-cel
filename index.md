@@ -2,7 +2,7 @@ Estam buscant gent per un nou projecte teatral: una versió amateur del musical 
 
 Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** a [l'Espiga](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA). Us animem a venir!
 
-Si et vols apuntar:
+Si t'hi vols apuntar:
 
 1. Omple aquest [**formulari**](https://forms.gle/E6jUGxY8BZ2Lk7Cr9) 
 2. Escull una opció del [**marerial d'audicions**](https://drive.google.com/drive/folders/1Lbej-lC0kqIewocesnkBmOoCa6arFaHf?usp=sharing) adequada a la teva tessitura
@@ -26,16 +26,23 @@ No tothom serà convocat a tots els assajos. Es planificaran en funció de perso
 📍 *Ubicació:* [L'Espiga](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
 
 ## Consells per l'audició
-- Escolteu-vos la referència 
-- Assajeu la cançó
-- Proveu de posar-hi intenció
+
+Hem de tenir en compte que Mar i Cel és un musical --gairebé-- sense diàleg parlat, sinó quasi tot cantat. És per això que l'audició de cant és també l'audició d'interpretació.
 
 Que no us faci por audicionar. No demanem un gran nivell. El requisit mínim és saber cantar.
 Ja sabem que no sou professionals (noasltres tampoc ho som).
+
+### Preguntes freqüents
+
+***Em faria il·lusió entrar el projecte però justament el dia 28 al matí no puc venir. Què faig?*** És important que vingueu perquè les audicions són la manera més objectiva que tenim de distribuïr personatges, ensamble, així com veure si la gent encaixa al projecte. De totes maneres si aquest és el teu cas, [posa't en contacte amb nosaltres](https://jlapeyra.github.io/mar-i-cel/#equip-directiu) i intentarem trobar una solució.
+
+***No em veig en cor de ser personatge, prefereixo ser cor, però el material d'audició refereix a personatges.*** El material d'audició fa referència a alguns dels personatges rellevants. Pots preparar-te l'audició pel personatge que t'encaixi més i el dia 28 dius que prefereixes un paper menor.
+
+***Soc una dona però voldria fer un personatge masculí. Puc?*** Si tens la veu prou greu com per fer un personatge tenor en la tonalitat original, sí.
 
 ## Equip directiu
 - Joan Lapeyra - direcció
 - Marta Barceló - producció
 - Ismael Al-Zayad - ajudant de direcció
 
-**Contacte:** Directament a la Marta o a maricel.espiga@gmail.com
+**Contacte:** Directament a la Marta Barceló o a maricel.espiga@gmail.com

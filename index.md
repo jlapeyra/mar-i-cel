@@ -6,7 +6,7 @@ Si t'hi vols apuntar:
 
 1. Omple aquest [**formulari**](https://forms.gle/E6jUGxY8BZ2Lk7Cr9) 
 2. Escull una opció del [**marerial d'audicions**](https://drive.google.com/drive/folders/1Lbej-lC0kqIewocesnkBmOoCa6arFaHf?usp=sharing) adequada a la teva tessitura
-3. Vine el **dilluns 28 al matí** a l'Espiga amb l'audició perparada.
+3. Vine el **diumenge 28 al matí** a l'Espiga amb l'audició perparada.
 
 Concretarem l'hora exacta quan sabem quanta gent s'ha apuntat.
 
@@ -36,9 +36,9 @@ Ja sabem que no sou professionals (noasltres tampoc ho som).
 
 ***Em faria il·lusió entrar el projecte però justament el dia 28 al matí no puc venir. Què faig?*** És important que vingueu perquè les audicions són la manera més objectiva que tenim de distribuïr personatges, ensamble, així com veure si la gent encaixa al projecte. De totes maneres si aquest és el teu cas, [posa't en contacte amb nosaltres](https://jlapeyra.github.io/mar-i-cel/#equip-directiu) i intentarem trobar una solució.
 
-***No em veig en cor de ser personatge, prefereixo ser cor, però el material d'audició refereix a personatges.*** El material d'audició fa referència a alguns dels personatges rellevants. Pots preparar-te l'audició pel personatge que t'encaixi més i el dia 28 dius que prefereixes un paper menor.
+***No em veig en cor de ser personatge, prefereixo ser cor, però el material d'audició refereix a personatges.*** El material d'audició fa referència a alguns dels personatges més principals de l'obra. Pots preparar-te el material del personatge que t'encaixi més i el dia de 'audició dius que prefereixes un paper menor.
 
-***Soc una dona però voldria fer un personatge masculí. Puc?*** Si tens la veu prou greu com per fer un personatge tenor en la tonalitat original, sí.
+***Soc una dona però voldria fer un personatge masculí. Puc?*** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
 
 ## Equip directiu
 - Joan Lapeyra - direcció

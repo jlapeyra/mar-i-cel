@@ -21,13 +21,9 @@ Concretarem l'hora exacta quan sabem quanta gent s'ha apuntat.
 - Eventualment, divendres de 20:00 a 22:00 aprox (a partir del novembre)
 No tothom serà convocat a tots els assajos. Es planificaran en funció de personatges.
 
-📅 *Calendari*
+📅 *Calendari:* Està previst començar a assajar la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
 
-Estar previst començar a assajar la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
-
-📍 *Ubicació:* 
-
-[L'Espiga](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
+📍 *Ubicació:* [L'Espiga](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
 
 ## Consells per l'audició
 - Escolteu-vos la referència 

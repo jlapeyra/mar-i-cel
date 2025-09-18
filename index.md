@@ -10,7 +10,7 @@ Si et vols apuntar:
 
 Concretarem l'hora exacta quan sabem quanta gent s'ha apuntat.
 
-L'obra completa està disponible a YouTube [▶️ Mar i Cel | YouTube](https://www.youtube.com/watch?v=YMCIQd8Ec1k&t=5829s)
+▶️ L'obra completa està disponible a [YouTube](https://www.youtube.com/watch?v=YMCIQd8Ec1k&t=5829s)
 
 ## Assajos
 

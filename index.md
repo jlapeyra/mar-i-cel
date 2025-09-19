@@ -27,18 +27,18 @@ No tothom serà convocat a tots els assajos. Es planificaran en funció de perso
 
 ## Consells per l'audició
 
-Hem de tenir en compte que Mar i Cel és un musical --gairebé-- sense diàleg parlat, sinó quasi tot cantat. És per això que l'audició de cant és també l'audició d'interpretació.
+Hem de tenir en compte que Mar i Cel és un musical pràcticament tot cantat, és a dir, gairebé no té diàleg. És per això que l'audició de cant és també l'audició d'interpretació. 2 en 1. Per tant, a l'audició valorarem tant la tècnica vocal com la intenció interpretativa que hi poseu a la cançó.
 
 Que no us faci por audicionar. No demanem un gran nivell. El requisit mínim és saber cantar.
 Ja sabem que no sou professionals (noasltres tampoc ho som).
 
 ### Preguntes freqüents
 
-***Em faria il·lusió entrar el projecte però justament el dia 28 al matí no puc venir. Què faig?*** És important que vingueu perquè les audicions són la manera més objectiva que tenim de distribuïr personatges, ensamble, així com veure si la gent encaixa al projecte. De totes maneres si aquest és el teu cas, [posa't en contacte amb nosaltres](https://jlapeyra.github.io/mar-i-cel/#equip-directiu) i intentarem trobar una solució.
+- *Em faria il·lusió entrar el projecte però justament el dia 28 al matí no puc venir. Què faig?* És important que vingueu perquè les audicions són la manera més objectiva que tenim de distribuïr personatges, ensamble, així com veure si la gent encaixa al projecte. De totes maneres si aquest és el teu cas, [posa't en contacte amb nosaltres](https://jlapeyra.github.io/mar-i-cel/#equip-directiu) i intentarem trobar una solució.
+- *Soc una dona però voldria fer un personatge masculí. Puc?* Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
+- *No em veig en cor de ser personatge, prefereixo ser cor, però el material d'audició refereix a personatges. Què he de fer?* El material d'audició fa referència a alguns dels personatges més principals de l'obra. Pots preparar-te el material del personatge que t'encaixi més i el dia de 'audició dius que prefereixes un paper menor.
 
-***No em veig en cor de ser personatge, prefereixo ser cor, però el material d'audició refereix a personatges.*** El material d'audició fa referència a alguns dels personatges més principals de l'obra. Pots preparar-te el material del personatge que t'encaixi més i el dia de 'audició dius que prefereixes un paper menor.
-
-***Soc una dona però voldria fer un personatge masculí. Puc?*** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
+---------
 
 ## Equip directiu
 - Joan Lapeyra - direcció

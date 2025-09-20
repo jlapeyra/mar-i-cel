@@ -45,7 +45,7 @@ Ja sabem que no sou professionals (noasltres tampoc ho som).
 
 - **Em faria il·lusió entrar el projecte però justament el dia 28 al matí no puc venir. Què faig?** És important que vingueu perquè les audicions són la manera més objectiva que tenim de distribuïr personatges, ensamble, així com veure si la gent encaixa al projecte. De totes maneres si aquest és el teu cas, [posa't en contacte amb nosaltres](https://jlapeyra.github.io/mar-i-cel/#equip-directiu) i intentarem trobar una solució.
 - **Soc una dona però voldria fer un personatge masculí. Puc?** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
-- **No em veig en cor de fer un personatge principel, prefereixo ser cor, però el material d'audició refereix a personatges. Què he de fer?** El material d'audició fa referència a alguns dels personatges més principals de l'obra. Pots preparar-te el material del personatge que t'encaixi més i el dia de 'audició dius que prefereixes un paper menor.
+- **No em veig en cor de fer un personatge principal, prefereixo ser cor, però el material d'audició refereix a personatges. Què he de fer?** El material d'audició fa referència a alguns dels personatges més principals de l'obra. Pots preparar-te el material del personatge que t'encaixi més i el dia de 'audició dius que prefereixes un paper menor.
 
 ---------
 

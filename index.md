@@ -27,10 +27,9 @@ Està previst començar a assajar la primera setmana d'octubre i estrenar a fina
 
 ### 📍 Ubicació
 
-Societat Coral l’Espiga de Les Corts<br>
+Societat Coral l’Espiga de **Les Corts**<br>
 Carrer de Joan Gamper, 30<br>
-08014 **Barcelona**
-
+08014 **Barcelona** <br>
 🔗 [Google Maps](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
 
 

@@ -25,11 +25,9 @@ No tothom serà convocat a tots els assajos. Es planificaran en funció de perso
 
 📍 *Ubicació:* 
 
-> Societat Coral l'Espiga de Les Corts
->
-> Carrer de Joan Gamper, 30
->
-> 08014 **Barcelona**
+Societat Coral l’Espiga de Les Corts<br>
+Carrer de Joan Gamper, 30<br>
+08014 **Barcelona**
 
 🔗 [Google Maps](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
 

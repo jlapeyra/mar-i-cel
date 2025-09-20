@@ -52,4 +52,4 @@ Ja sabem que no sou professionals (noasltres tampoc ho som).
 - Marta Barceló - producció
 - Ismael Al-Zayad - ajudant de direcció
 
-**Contacte:** Directament a la algú de l'equip o a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)
+**Contacte:** Directament a algú de l'equip o a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)

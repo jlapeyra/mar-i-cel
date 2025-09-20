@@ -14,16 +14,18 @@ Concretarem l'hora exacta quan sabem quanta gent s'ha apuntat.
 
 ## Assajos
 
-🕒 *Horaris:*
+### 🕒 Horaris:
 - Diumenge al matí
 - Provisionalment, dimecres de 18:15 a 20:15 (fins al novembre)
-- Eventualment, divendres de 20:00 a 22:00 aprox (a partir del novembre)
+- Eventualment, divendres de 19:13 a 22:00, aproximadament (a partir del novembre)
 
 No tothom serà convocat a tots els assajos. Es planificaran en funció de personatges.
 
-📅 *Calendari:* Està previst començar a assajar la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
+### 📅 Calendari
 
-📍 *Ubicació:* 
+Està previst començar a assajar la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
+
+### 📍 Ubicació
 
 Societat Coral l’Espiga de Les Corts<br>
 Carrer de Joan Gamper, 30<br>

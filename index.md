@@ -1,6 +1,6 @@
-Estam buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel***, de Dagoll Dafom. 
+Estam buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel***, de Dagoll Dagom. 
 
-Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** a [l'Espiga](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA). Us animem a venir!
+Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** al teatre [l'Espiga de les Corts](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA). Us animem a venir!
 
 Si t'hi vols apuntar:
 
@@ -23,7 +23,14 @@ No tothom serà convocat a tots els assajos. Es planificaran en funció de perso
 
 📅 *Calendari:* Està previst començar a assajar la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
 
-📍 *Ubicació:* [L'Espiga](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
+📍 *Ubicació:* 
+
+> Societat Coral l'Espiga de Les Corts
+> Carrer de Joan Gamper, 30
+> 08014 **Barcelona**
+
+🔗 [Google Maps](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
+
 
 ## Consells per l'audició
 
@@ -36,7 +43,7 @@ Ja sabem que no sou professionals (noasltres tampoc ho som).
 
 ***Em faria il·lusió entrar el projecte però justament el dia 28 al matí no puc venir. Què faig?*** És important que vingueu perquè les audicions són la manera més objectiva que tenim de distribuïr personatges, ensamble, així com veure si la gent encaixa al projecte. De totes maneres si aquest és el teu cas, [posa't en contacte amb nosaltres](https://jlapeyra.github.io/mar-i-cel/#equip-directiu) i intentarem trobar una solució.
 
-***No em veig en cor de ser personatge, prefereixo ser cor, però el material d'audició refereix a personatges.*** El material d'audició fa referència a alguns dels personatges més principals de l'obra. Pots preparar-te el material del personatge que t'encaixi més i el dia de 'audició dius que prefereixes un paper menor.
+***No em veig en cor de ser personatge, prefereixo ser cor, però el material d'audició refereix a personatges.*** El material d'audició fa referència a alguns dels personatges més principals de l'obra. Pots preparar-te el material del personatge que t'encaixi més i el dia de l'audició dius que prefereixes un paper menor.
 
 ***Soc una dona però voldria fer un personatge masculí. Puc?*** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
 
@@ -45,4 +52,4 @@ Ja sabem que no sou professionals (noasltres tampoc ho som).
 - Marta Barceló - producció
 - Ismael Al-Zayad - ajudant de direcció
 
-**Contacte:** Directament a la Marta Barceló o a maricel.espiga@gmail.com
+**Contacte:** Directament a la algú de l'equip o a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)

@@ -1,14 +1,14 @@
 Estam buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel***, de Dagoll Dagom. 
 
-Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** al teatre [l'Espiga de les Corts](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA). Us animem a venir!
+Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** al teatre de [l'Espiga de les Corts](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA). Us animem a venir!
 
 Si t'hi vols apuntar:
 
 1. Omple aquest [**formulari**](https://forms.gle/E6jUGxY8BZ2Lk7Cr9) 
-2. Escull una opció del [**marerial d'audicions**](https://drive.google.com/drive/folders/1Lbej-lC0kqIewocesnkBmOoCa6arFaHf?usp=sharing) adequada a la teva tessitura
+2. Escull una opció del [**material d'audicions**](https://drive.google.com/drive/folders/1Lbej-lC0kqIewocesnkBmOoCa6arFaHf?usp=sharing) adequada a la teva tessitura
 3. Vine el **diumenge 28 al matí** a l'Espiga amb l'audició perparada.
 
-Concretarem l'hora exacta quan sabem quanta gent s'ha apuntat.
+Concretarem l'hora exacta quan sapiguem quanta gent s'ha apuntat.
 
 ▶️ L'obra completa està disponible a [YouTube](https://www.youtube.com/watch?v=YMCIQd8Ec1k&t=5829s)
 
@@ -17,13 +17,13 @@ Concretarem l'hora exacta quan sabem quanta gent s'ha apuntat.
 ### 🕒 Horaris:
 - Diumenge al matí
 - Provisionalment, dimecres de 18:15 a 20:15 (fins al novembre)
-- Eventualment, divendres de 19:13 a 22:00, aproximadament (a partir del novembre)
+- Eventualment, divendres de 19:30 a 22:00, aproximadament (a partir del novembre)
 
 No tothom serà convocat a tots els assajos. Es planificaran en funció de personatges.
 
 ### 📅 Calendari
 
-Està previst començar a assajar la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
+Està previst començar assajos la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
 
 ### 📍 Ubicació
 
@@ -38,13 +38,17 @@ Carrer de Joan Gamper, 30<br>
 Hem de tenir en compte que Mar i Cel és un musical pràcticament tot cantat, és a dir, gairebé no té diàleg. És per això que l'audició de cant és també l'audició d'interpretació. 2 en 1. Per tant, a l'audició valorarem tant la tècnica vocal com la intenció interpretativa que hi poseu a la cançó.
 
 Que no us faci por audicionar. No demanem un gran nivell. El requisit mínim és saber cantar.
-Ja sabem que no sou professionals (noasltres tampoc ho som).
+Ja sabem que no sou professionals (nosaltres tampoc ho som).
 
-### Preguntes freqüents
+## Preguntes freqüents
+
+- **No tinc temps d'estudiar sencer la cançó/fragment que especifica el material. Puc cantar-ne només un tros?** Valorarem que cantis i interpretis la totalitat de l'audició. Tot i així, si no tens prou tems i/o aspires a un paper menor, pots cantar un tros.
+
 
 - **Em faria il·lusió entrar el projecte però justament el dia 28 al matí no puc venir. Què faig?** És important que vingueu perquè les audicions són la manera més objectiva que tenim de distribuïr personatges, ensamble, així com veure si la gent encaixa al projecte. De totes maneres si aquest és el teu cas, [posa't en contacte amb nosaltres](https://jlapeyra.github.io/mar-i-cel/#equip-directiu) i intentarem trobar una solució.
 - **Soc una dona però voldria fer un personatge masculí. Puc?** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
-- **No em veig en cor de fer un personatge principal, prefereixo ser cor, però el material d'audició refereix a personatges. Què he de fer?** El material d'audició fa referència a alguns dels personatges més principals de l'obra. Pots preparar-te el material del personatge que t'encaixi més i el dia de 'audició dius que prefereixes un paper menor.
+- **No em veig capaç de fer un personatge principal, prefereixo ser cor, però el material d'audició refereix a personatges. Què he de fer?**  Pots preparar-te el material del personatge que t'encaixi més i el dia de l'audició dius que prefereixes un paper menor.
+- **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
 
 ---------
 

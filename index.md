@@ -1,14 +1,14 @@
 Estam buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel***, de Dagoll Dagom. 
 
-Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** al teatre de [l'Espiga de les Corts](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA). Us animem a venir!
+Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** al teatre de l'Espiga de les Corts. Us animem a venir!
 
 Si t'hi vols apuntar:
 
 1. Omple aquest [**formulari**](https://forms.gle/E6jUGxY8BZ2Lk7Cr9) 
 2. Escull una opció del [**material d'audicions**](https://drive.google.com/drive/folders/1Lbej-lC0kqIewocesnkBmOoCa6arFaHf?usp=sharing) adequada a la teva tessitura
-3. Vine **aquest diumenge** a l'Espiga amb l'audició perparada.
+3. Vine **aquest diumenge** a l'Espiga de les Corts amb l'audició perparada.
 
-### Audicions
+#### Audicions
 
 📅 Diumenge 28 de setembre<br>
 🕒 10:30 del matí<br>
@@ -16,7 +16,7 @@ Si t'hi vols apuntar:
 
 És important que vingueu presencialment. Ho valorarem. De totes maneres, si no podeu venir podeu enviar un vídeo amb el vostre càsting a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com), preferentment abans de diumenge.
 
-### *Mar i Cel*
+#### *Mar i Cel*
 
 ▶️ L'obra completa està disponible a [YouTube](https://www.youtube.com/watch?v=YMCIQd8Ec1k&t=5829s)
 

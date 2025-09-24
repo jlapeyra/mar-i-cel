@@ -6,20 +6,28 @@ Si t'hi vols apuntar:
 
 1. Omple aquest [**formulari**](https://forms.gle/E6jUGxY8BZ2Lk7Cr9) 
 2. Escull una opció del [**material d'audicions**](https://drive.google.com/drive/folders/1Lbej-lC0kqIewocesnkBmOoCa6arFaHf?usp=sharing) adequada a la teva tessitura
-3. Vine el **diumenge 28 al matí** a l'Espiga amb l'audició perparada.
+3. Vine **diumenge al matí** a l'Espiga amb l'audició perparada.
 
-Concretarem l'hora exacta quan sapiguem quanta gent s'ha apuntat.
+## Audicions
+
+📅 Diumenge 28 de setembre<br>
+🕒 10:30 del matí<br>
+📍 [Societat Coral l’Espiga de Les Corts](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
+
+És important que vingueu presencialment a les audicions. Ho valorarem. De totes maneres, si no podeu venir podeu enviar un vídeo amb el vostre càsting a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com).
+
+## *Mar i Cel*
 
 ▶️ L'obra completa està disponible a [YouTube](https://www.youtube.com/watch?v=YMCIQd8Ec1k&t=5829s)
 
 ## Assajos
 
 ### 🕒 Horaris:
+No tothom serà convocat a tots els assajos. Es planificaran en funció de personatges, però sempre seran en alguna d'aquestes tres frannges:
+
 - Diumenge al matí
 - Provisionalment, dimecres de 18:15 a 20:15 (fins al novembre)
 - Eventualment, divendres de 19:30 a 22:00, aproximadament (a partir del novembre)
-
-No tothom serà convocat a tots els assajos. Es planificaran en funció de personatges.
 
 ### 📅 Calendari
 
@@ -42,13 +50,10 @@ Ja sabem que no sou professionals (nosaltres tampoc ho som).
 
 ## Preguntes freqüents
 
-- **No tinc temps d'estudiar sencer la cançó/fragment que especifica el material. Puc cantar-ne només un tros?** Valorarem que cantis i interpretis la totalitat de l'audició. Tot i així, si no tens prou tems i/o aspires a un paper menor, pots cantar un tros.
-
-
-- **Em faria il·lusió entrar el projecte però justament el dia 28 al matí no puc venir. Què faig?** És important que vingueu perquè les audicions són la manera més objectiva que tenim de distribuïr personatges, ensamble, així com veure si la gent encaixa al projecte. De totes maneres si aquest és el teu cas, [posa't en contacte amb nosaltres](https://jlapeyra.github.io/mar-i-cel/#equip-directiu) i intentarem trobar una solució.
-- **Soc una dona però voldria fer un personatge masculí. Puc?** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
-- **No em veig capaç de fer un personatge principal, prefereixo ser cor, però el material d'audició refereix a personatges. Què he de fer?**  Pots preparar-te el material del personatge que t'encaixi més i el dia de l'audició dius que prefereixes un paper menor.
 - **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
+- **No tinc temps d'estudiar sencer la cançó/fragment que especifica el material. Puc cantar-ne només un tros?** Valorarem que cantis i interpretis la totalitat de l'audició. Tot i així, si no tens prou tems i/o aspires a un paper menor, pots cantar un tros.
+- **Soc una dona però voldria fer un personatge masculí. Puc?** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
+- **Preferiria fer un paper menor o ser cor, però el material d'audicions masculines refereix a només a personatges. Què he de fer?**  Pots preparar-te el material del personatge que t'encaixi més i el dia de l'audició dius que prefereixes un paper menor.
 
 ---------
 

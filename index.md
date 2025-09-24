@@ -8,37 +8,35 @@ Si t'hi vols apuntar:
 2. Escull una opció del [**material d'audicions**](https://drive.google.com/drive/folders/1Lbej-lC0kqIewocesnkBmOoCa6arFaHf?usp=sharing) adequada a la teva tessitura
 3. Vine **aquest diumenge** a l'Espiga de les Corts amb l'audició perparada.
 
-#### Audicions
-
+**Audicions**:<br>
 📅 Diumenge 28 de setembre<br>
 🕒 10:30 del matí<br>
 📍 [Societat Coral l’Espiga de Les Corts](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
 
 És important que vingueu presencialment. Ho valorarem. De totes maneres, si no podeu venir podeu enviar un vídeo amb el vostre càsting a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com), preferentment abans de diumenge.
 
-#### *Mar i Cel*
-
+***Mar i Cel***:<br>
 ▶️ L'obra completa està disponible a [YouTube](https://www.youtube.com/watch?v=YMCIQd8Ec1k&t=5829s)
 
 ## Assajos
+
+### 📍 Ubicació
+Societat Coral l’Espiga de **Les Corts**<br>
+Carrer de Joan Gamper, 30<br>
+08014 **Barcelona** <br>
+🔗 [Google Maps](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
 
 ### 🕒 Horaris:
 No tothom serà convocat a tots els assajos. Es planificaran en funció de personatges, però sempre seran en alguna d'aquestes tres frannges:
 
 - Diumenge al matí
-- Provisionalment, dimecres de 18:15 a 20:15 (fins al novembre)
-- Eventualment, divendres de 19:30 a 22:00, aproximadament (a partir del novembre)
+- Provisionalment (fins al novembre), dimecres de 18:15 a 20:15 
+- Eventualment (a partir del novembre), divendres de 19:30 a 21:30, aproximadament (falta concretar-ho amb l'entitat)
 
 ### 📅 Calendari
-
 Està previst començar assajos la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
 
-### 📍 Ubicació
 
-Societat Coral l’Espiga de **Les Corts**<br>
-Carrer de Joan Gamper, 30<br>
-08014 **Barcelona** <br>
-🔗 [Google Maps](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
 
 
 ## Consells per l'audició

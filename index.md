@@ -52,8 +52,8 @@ Ja sabem que no sou professionals (nosaltres tampoc ho som).
 
 - **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
 - **No tinc temps d'estudiar sencer la cançó/fragment que especifica el material. Puc cantar-ne només un tros?** Valorarem que cantis i interpretis la totalitat de l'audició. Tot i així, si no tens prou tems i/o aspires a un paper menor, pots cantar un tros.
-- **Soc una dona però voldria fer un personatge masculí. Puc?** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
 - **Preferiria fer un paper menor o ser cor, però el material d'audicions masculines refereix a només a personatges. Què he de fer?**  Pots preparar-te el material del personatge que t'encaixi més i el dia de l'audició dius que prefereixes un paper menor.
+- **Soc una dona però voldria fer un personatge masculí. Puc?** Si tens la veu prou greu com per cantar la veu d'un personatge tenor en la tonalitat original, sí.
 
 ---------
 

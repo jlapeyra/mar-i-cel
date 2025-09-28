@@ -1,4 +1,4 @@
-Estam buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel***, de Dagoll Dagom. 
+Estem buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel***, de Dagoll Dagom. 
 
 Hem convocat audicions (una mena de càsting informal) pel **diumenge 28 de setembre al matí** al teatre de l'Espiga de les Corts. Us animem a venir!
 
@@ -31,10 +31,10 @@ No tothom serà convocat a tots els assajos. Es planificaran en funció de perso
 
 - Diumenge al matí
 - Provisionalment (fins al novembre), dimecres de 18:15 a 20:15 
-- Eventualment (a partir del novembre), divendres de 19:30 a 21:30, aproximadament (falta concretar-ho amb l'entitat)
+- Eventualment (a partir del novembre), divendres de 19:30 a 21:30, aprox. (falta concretar-ho amb l'entitat)
 
 ### 📅 Calendari
-Està previst començar assajos la primera setmana d'octubre i estrenar a finals de curs. La data exacta d'estrena està per concretar.
+Està previst començar assajos aquest octubre i estrenar a l'estiu o tardor de 2026. Les dates de funcions estan per concretar.
 
 
 

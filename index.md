@@ -17,12 +17,12 @@ Començarem a assajar **la tercera setmana de novembre**.
 
 Societat Coral l’Espiga de Les Corts<br>
 Carrer de Joan Gamper, 30<br>
-08014 **Barcelona** <br>
+08014 Barcelona <br>
 🔗 [Google Maps](https://maps.app.goo.gl/UKvxbjctCYpa5X2YA)
 
 ### 🕒 Horaris:
 - Assajos regulars: **divendres** de 19:30 a 22:00
-- Assajos puntuals: diumenges al matí
+- Assajos puntuals: **diumenges** al matí
 
 No convocarem a tothom a totes hores. Convocarem persones en funció de les escenes o cançons que haguem de muntar.
 

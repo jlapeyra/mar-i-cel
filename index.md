@@ -28,7 +28,7 @@ No convocarem a tothom a totes hores. Convocarem persones en funció de les esce
 
 ### 📅 Calendari
 - 28 de setembre de 2025: audicions presencials
-- 👉 Octubre de 2025: audicions no presencials (vídeo a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com))
+- 👉 Octubre i novembre de 2025: audicions no presencials (vídeo a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com))
 - 21 de novembre de 2025: inici d'assajos
 - Tardor de 2026: estrena
 

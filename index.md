@@ -37,8 +37,11 @@ No convocarem a tothom a totes hores. Convocarem persones en funció de les esce
 ## Preguntes freqüents
 
 - **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
-- **No tinc temps d'estudiar sencer la cançó/fragment que especifica el material. Puc cantar-ne només un tros?** Valorarem que cantis i interpretis la totalitat de l'audició, però si no tens prou tems i/o aspires a un paper menor, pots cantar-ne un tros.
-- **Preferiria fer un paper menor o ser cor, però el material d'audicions masculines refereix a només a personatges. Què he de fer?**  Pots preparar-te el material del personatge que t'encaixi més i informar-nos que prefereixes un paper menor.
+- **Com ha de ser el vídeo-càsting que us envïi?** El més importat és que et sentim canrtar. Valorarem que ho facis amb l'acompanyament que propoercionem.
+- **Ja fa un mes de les audicions presencials. Estan tots els personatges assignats?** Gairabé tots, però encara busquem gent pel cor de pirates i de cristianes. Pel que fa al material d'audicons, prepare't la cançó/fragment que encaixí més amb el teu registre.
+- **No tinc temps d'estudiar sencer la cançó/fragment que especifica el material. Puc cantar-ne només un tros?** Valorarem que cantis i interpretis la totalitat de l'audició, però si no tens prou temps, pots cantar-ne un tros.
+
+
 
 ---------
 

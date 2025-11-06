@@ -1,4 +1,6 @@
-Estem buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel***, de Dagoll Dagom. 
+Estem buscant gent per un nou projecte teatral: una versió amateur del musical ***Mar i Cel*** de Dagoll Dagom. 
+
+Els assajos començaran el pròxim **divendres 21 de novembre**.
 
 Si t'hi vols apuntar:
 
@@ -6,12 +8,7 @@ Si t'hi vols apuntar:
 2. Escull una opció del [**material d'audicions**](https://drive.google.com/drive/folders/1Lbej-lC0kqIewocesnkBmOoCa6arFaHf?usp=sharing) adequada a la teva tessitura
 3. Grava la teva audició en vídeo i envia'ns-la.
 
-***Mar i Cel***:<br>
-▶️ L'obra completa està disponible a [YouTube](https://www.youtube.com/watch?v=YMCIQd8Ec1k&t=5829s)
-
 ## Assajos
-
-Començarem a assajar **la tercera setmana de novembre**.
 
 ### 📍 Ubicació
 
@@ -36,18 +33,20 @@ No convocarem a tothom a totes hores. Convocarem persones en funció de les esce
 
 ## Preguntes freqüents
 
-- **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
-- **Com ha de ser el vídeo-càsting que us envïi?** El més importat és que et sentim canrtar. Valorarem que ho facis amb l'acompanyament que propoercionem.
-- **Ja fa un mes de les audicions presencials. Estan tots els personatges assignats?** Gairabé tots, però encara busquem gent pel cor de pirates i de cristianes. Pel que fa al material d'audicons, prepare't la cançó/fragment que encaixí més amb el teu registre.
+- **Com ha de ser el vídeo-càsting que us envïi?** El més importat és que et sentim canrtar. Valorarem que ho facis amb l'acompanyament que proporcionem.
+- **Ja fa un mes de les audicions presencials. Estan tots els personatges assignats?** Gairabé tots: ens falta Osman i seguim buscant gent pel cor de pirates . Pel que fa al material d'audicons, prepare't la cançó/fragment que encaixí més amb el teu registre.
 - **No tinc temps d'estudiar sencer la cançó/fragment que especifica el material. Puc cantar-ne només un tros?** Valorarem que cantis i interpretis la totalitat de l'audició, però si no tens prou temps, pots cantar-ne un tros.
+- **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
 
 
 
 ---------
 
 ## Equip directiu
-- Joan Lapeyra - direcció
+- Joan Lapeyra [@jlapeyra](https://www.instagram.com/jlapeyra/#) - direcció
 - Marta Barceló - producció
 - Ismael Al-Zayat - ajudant de direcció
 
-**Contacte:** Directament a algú de l'equip o a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)
+## Contacte
+
+Directament a algú de l'equip o a [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)

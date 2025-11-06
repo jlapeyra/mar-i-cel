@@ -39,11 +39,10 @@ No convocarem a tothom a totes hores. Convocarem persones en funció de les esce
 - **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
 
 
-
 ---------
 
 ## Equip directiu
-- Joan Lapeyra [@jlapeyra](https://www.instagram.com/jlapeyra/#) - direcció
+- Joan Lapeyra - direcció
 - Marta Barceló - producció
 - Ismael Al-Zayat - ajudant de direcció
 

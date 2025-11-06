@@ -34,7 +34,7 @@ No convocarem a tothom a totes hores. Convocarem persones en funció de les esce
 ## Preguntes freqüents
 
 - **Com ha de ser el vídeo-càsting que us envïi?** El més importat és que et sentim canrtar. Valorarem que ho facis amb l'acompanyament que proporcionem.
-- **Ja fa un mes de les audicions presencials. Estan tots els personatges assignats?** Gairabé tots: ens falta Osman i seguim buscant gent pel cor de pirates . Pel que fa al material d'audicons, prepare't la cançó/fragment que encaixí més amb el teu registre.
+- **Ja fa un mes de les audicions presencials. Estan tots els personatges assignats?** Gairabé tots: ens falta Osman i seguim buscant gent pel cor de pirates. Pel que fa al material d'audicons, prepare't la cançó/fragment que encaixí més amb el teu registre.
 - **No tinc temps d'estudiar sencer la cançó/fragment que especifica el material. Puc cantar-ne només un tros?** Valorarem que cantis i interpretis la totalitat de l'audició, però si no tens prou temps, pots cantar-ne un tros.
 - **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
 

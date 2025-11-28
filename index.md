@@ -16,6 +16,7 @@ Carrer de Joan Gamper, 30<br>
 ## 💬 Preguntes freqüents
 - **Teniu permís de Dagoll Dagom per fer el musical?** Sí, ens han donat permís. L'autorització legal està pendent de ser formalitzada, però en el correu han estat molt clars que ens deixen fer-ho.
 - **Seguiu buscant actors?** Ja no. El 21 de novembre vam fer el primer assaig i vam tancar repartiment. Si no hi ha cap imprevist ens quedem amb l'elenc de 20 actors que tenim actualment.
+- **Quin tipus de producció feu?** Amateur, és a dir, no remunerat.
 
 ## 🌊 Equip directiu
 - Joan Lapeyra - direcció

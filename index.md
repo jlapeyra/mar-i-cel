@@ -28,4 +28,4 @@ Carrer de Joan Gamper, 30<br>
 
 ## ✉️ Contacte:
 
->> [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)
+> [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)

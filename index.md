@@ -1,9 +1,11 @@
 **⚠️ REPARTIMENT TANCAT. JA NO BUSQUEM MÉS GENT. ⚠️**
 
 ## 🌾 Entitat
-Societat Coral l’Espiga de Les Corts<br>
+Societat Coral l’Espiga de Les Corts
+
 Carrer de Joan Gamper, 30<br>
-08014 Barcelona <br>
+08014 Barcelona
+
 [https://espigadelescorts.cat/](https://espigadelescorts.cat/)
 
 

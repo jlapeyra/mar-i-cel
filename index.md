@@ -1,4 +1,4 @@
-**⚠️ REPARTIMENT TANCAT. JA NO BUSQUEM MÉS GENT. ⚠️**
+**⚠️ REPARTIMENT TANCAT. JA NO BUSQUEM MÉS INTÈRPRETS. ⚠️**
 
 ## 🌾 Entitat
 

@@ -26,4 +26,6 @@ Carrer de Joan Gamper, 30<br>
 - Ismael Al-Zayat - ajudant de direcció
 
 
-**Contacte:** [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)
+## ✉️ Contacte:
+
+>> [maricel.espiga@gmail.com](mailto:maricel.espiga@gmail.com)
